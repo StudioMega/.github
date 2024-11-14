@@ -1,4 +1,4 @@
-We’re (Studio Mega)[https://studiomega.com/], a creative agency in Portland, Oregon serving brands globally.
+We’re [Studio Mega](https://studiomega.com/), a creative agency in Portland, Oregon serving brands globally.
 
 We partner with brands to move hearts and minds through strategy, design & activation. 
 
